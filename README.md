@@ -1,1 +1,1 @@
-Alles nur für diese rotz Englisch Stunde!
+Alles nur für diese tolle Englisch Stunde!
